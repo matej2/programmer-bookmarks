@@ -4,8 +4,8 @@ A collection of bookmarks and advices on how to improve your lifestlye as a prog
 
 CONTENTS 📃
 
-- [Exercise 🏃‍](#Exercise🏃‍)
-- [Living your free time ⚽](#Living-your-free-time⚽)
+- [Exercise 🏃‍](#Exercise)
+- [Living your free time ⚽](#Living-your-free-time)
 - [Links and references](#Links-and-references)
 ## Exercise🏃‍
 
