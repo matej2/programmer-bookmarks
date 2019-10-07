@@ -49,6 +49,8 @@ If you want to try some diets, try [ketonic diet](https://medium.com/kkempin/bes
 
 Programmers live a very sedentary lifestyle, and thus the main problem isn’t usually overeating. The fact that you are not moving, exercising, or eating as well as others, further contributes towards having a strict diet plan. For those who are active, having a larger intake of food can be possible without gaining weight. But that’s not the case for most programmers. [Here](http://www.indianic.com/blog/general/the-best-food-for-programmers.html) are some food options programmers are bound to relish.
 
+If you eat smarter, the healthy food you put into your body can actually act as a brain booster and might just improve your workplace performance. Need lunch ideas for work, or some healthy snacks to stock up on? [These foods](https://www.monster.com/career-advice/article/brain-foods-stay-focused-0717)  can help keep your brain at its prime.
+
 ## Drinking
 
 
